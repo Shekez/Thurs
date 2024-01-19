@@ -1,0 +1,2 @@
+# Thurs
+Just normal practice 
